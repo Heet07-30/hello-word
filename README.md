@@ -1,2 +1,0 @@
-hello there
-fuck you
